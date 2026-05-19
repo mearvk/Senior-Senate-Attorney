@@ -11,6 +11,5 @@ Owner of Miramax Films UK & US United States and Settlement - NO GODZILLA
 
 Carefully then Capitalismisrs do Comes .. RRrs
 
-
-
+![Profile views](https://views.igorkowalczyk.dev/api/badge/@mearvk?style=flat)
 
